@@ -4,28 +4,28 @@ return `PAYMENT BY ZEEONE OFC
 *🏧 BANK*
 
 1. BRI 
-	ㅁ 8881 0887 4350 47326
+	ㅁ SCAND PP !!
 2. BCA 
-	ㅁ 3901 0887 4350 47326
+	ㅁ SCAND PP !!
 3. BNI 
-	ㅁ 881 0887 4350 47326
+	ㅁ SCAND PP !!
 4. PERMATA
-	ㅁ 852 8887 4350 47326
+	ㅁ SCAND PP !!
 	
 *💰 E-MONEY*
 
 1. GOPAY
-	ㅁ 0887 4350 47326
+	ㅁ SCAND PP !!
 2. OVO
-	ㅁ 0887 4350 47326
+	ㅁ 0858 5231 1805
 3. DANA
-	ㅁ 0887 4350 47326
+	ㅁ 0895 3672 08200
 	
-Semuanya atas nama RI****DI
+Semuanya atas nama YU***NTI
 
 *📲 PULSA*
 
-Tidak tersedia
+085852311805
 	
 Sebelum melakukan pembayaran ada baiknya anda menghubungi owner terlebih dahulu!
 `
